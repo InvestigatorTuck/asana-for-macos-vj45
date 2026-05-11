@@ -1,4 +1,4 @@
-
+exclusive Automation for Asana for macOS - export to PDF and widgets offers the most advanced Asana for macOS automation, with export to PDF and widgets. Ideal for professionals.
 
 
 
